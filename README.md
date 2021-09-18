@@ -1,1 +1,5 @@
-
+- 👋 Hi, I’m @hubertpnj
+- 👀 I’m interested in a job
+- 🌱 I’m currently learning to get a job
+- 💞️ I’m looking to collaborate on how to get a job
+- 📫 How to reach me to give me a job
